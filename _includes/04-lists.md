@@ -1,0 +1,3 @@
+- i like writing.
+- singing.
+- gaming.
